@@ -1,0 +1,2 @@
+# -.am
+Naxagcayin ashx
